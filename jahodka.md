@@ -1,5 +1,5 @@
 Jahodkajahodka
 Jalcko123
-# Hru
+# Hru hruska 
 jahodka je fajnova
 jahodka je cervena
